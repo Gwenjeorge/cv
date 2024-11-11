@@ -2,7 +2,7 @@
 
 # **Administrateur systèmes et réseaux**
 
-![Photo](./lechat)
+![Photo](./lechat.jpeg)
 
 ## **Présentation**
 
