@@ -20,10 +20,10 @@
 
 ## **Expériences professionnelles**  
 
-**Aide-Soignant - Clinique Brétéché**  
-*Service de soins de suite et réhabilitation*  
-*Unité de soins continus* 
-**Aide-Soignant - CHU de Nantes**  
+**Aide-Soignant - Clinique Brétéché**    
+*Service de soins de suite et réhabilitation*    
+*Unité de soins continus*   
+**Aide-Soignant - CHU de Nantes**    
 *Unité de soins continus*  
 *Service de soins de suite et réhabilitation*  
 *Service de chirurgie viscérale et digestive*  
